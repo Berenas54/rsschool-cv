@@ -1,1 +1,1 @@
-https://Berenas54.github.io/rsschool-cv/cv
+https://berenas54.github.io/rsschool-cv/
