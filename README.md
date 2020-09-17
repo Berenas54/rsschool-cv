@@ -4,9 +4,9 @@
 ## Contacts
 
 #### Minsk, Belarus
-##### +375 (29) 812-67-34
-##### e-mail: haravoy1998@gmail.com
-##### github: [@Berenas54](https://github.com/Berenas54)
+##### Mobile: +375 (29) 812-67-34
+##### E-mail: haravoy1998@gmail.com
+##### GitHub: [@Berenas54](https://github.com/Berenas54)
 ##### Telegram: [@Berenas54](https://t.me/Berenas54)
 
 ## Summary
